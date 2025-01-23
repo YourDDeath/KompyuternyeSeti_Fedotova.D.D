@@ -1,0 +1,1 @@
+# KompyuternyeSeti_Fedotova.D.D
